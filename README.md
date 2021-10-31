@@ -1,3 +1,3 @@
 # DA
 
-will be available on 18 october 2021
+will be available on 31 october 2021
